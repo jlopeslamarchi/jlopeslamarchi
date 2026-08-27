@@ -30,4 +30,4 @@ Gosto do ponto em que estatística e engenharia se encontram: modelo que não vi
  
 ### Onde me achar
  
-[LinkedIn](www.linkedin.com/in/julialamarchi) · jlopeslamarchi@gmail.com · São Paulo, SP
+[LinkedIn](https://www.linkedin.com/in/julialamarchi) · jlopeslamarchi@gmail.com · São Paulo, SP
